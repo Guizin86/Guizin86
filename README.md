@@ -10,4 +10,4 @@ Meu nome é Guilherme Barcelos Dos Santos
 
 - pig.master.8899@gmail.com
 
-![]([https://media.tenor.com/2g64zhVZV6kAAAAM/jojo-calamity.gif](https://tenor.com/pt-BR/view/zoro-gif-23405425))
+![](https://tenor.com/pt-BR/view/zoro-gif-22575401)
