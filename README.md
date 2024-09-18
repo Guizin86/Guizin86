@@ -8,6 +8,6 @@ Meu nome é Guilherme Barcelos Dos Santos
 
 - # Voce pode entrar em contado comigo ⬇️
 
-- pig.master.8899@gmail.com
+- guibarcelosdossantos@gmail.com
 
 ![](https://media1.tenor.com/m/FERbWoosBFIAAAAC/jojo-calamity.gif) 
